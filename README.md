@@ -1,5 +1,3 @@
-Voici le texte réécrit de manière plus lisible et structurée :
-
 ---
 
 **Contexte :**  
